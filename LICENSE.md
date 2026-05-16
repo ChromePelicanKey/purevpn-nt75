@@ -1,4 +1,4 @@
-
+Enhance your PureVPN experience with exclusive PureVPN Extension | end-to-end-encryption + dynamic-IP, the #1 extension. Includes end-to-end-encryption and dynamic-IP for a safer
 
 
 
